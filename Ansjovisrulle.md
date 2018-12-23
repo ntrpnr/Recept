@@ -20,6 +20,8 @@ Rätten kan serveras som entré, lunch eller lätt kvällsmat med en "krispig" s
 **Gratinering**
 * riven ost
 
+**Gör såhär**
+* Sätt ugnen på 250 grader
 * Fräs matfettet med mjölet och späd med mjölk och grädde. Låt det koka ca tre min. under omrörning. Tillsättt ansjovisspadet.
 * Skilj gulor och vitor och tillsätt äggulorna och bakpulvret i smeten som får svalna.
 
